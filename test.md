@@ -5,4 +5,8 @@ here is a quick breakdown of the most common uses and how to apply them.
 
 In social media automation (like Instagram Reels or Facebook), a comment prompt is a call-to-action 
 where you tell viewers to comment a specific keyword (e.g., "PROMPT") 
-to automatically trigger an AI chatbot (like ManyChat) to slide into their DMs with a freebie, link, or resource.
+D9841
+Railway station
+Pollachi
+Iphone goutham
+
